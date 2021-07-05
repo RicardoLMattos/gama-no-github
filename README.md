@@ -1,1 +1,1 @@
-Este curso está muito!
+Este curso está muito bom!
